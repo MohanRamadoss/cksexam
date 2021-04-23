@@ -1,0 +1,1 @@
+Prepare to CKS exam
